@@ -1,1 +1,2 @@
-Prima inregistrare aici.
+-------------
+a 2a inregistrare
